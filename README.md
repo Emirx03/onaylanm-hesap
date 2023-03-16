@@ -1,0 +1,2 @@
+# onaylanm-hesap
+Mavi tik
